@@ -1,6 +1,3 @@
-# villacaetanogoa.github.io
-Luxury Villa Rental in Siolim Goa
-
 # Villa Caetano - Luxury Villa in Siolim, Goa
 
 Welcome to **Villa Caetano**, a premier luxury villa rental located in the serene town of **Siolim, Goa**. Experience a perfect blend of **modern elegance** and **Goan charm** in a private, tranquil setting.
